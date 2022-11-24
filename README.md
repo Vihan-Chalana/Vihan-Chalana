@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vihan-Chalana
-- 👀 I’m interested in Squash, Tech and cooking
+- 👀 I’m interested in Squash, Gym and cooking
 - 🌱 I’m currently learning Science, Maths and Computers
 - 💞️ I’m looking to collaborate on sports and fitness
 - 📫 How to reach me vihanchalana123@gmail.com
